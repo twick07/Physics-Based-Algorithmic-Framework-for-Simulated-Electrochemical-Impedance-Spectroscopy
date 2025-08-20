@@ -2,7 +2,7 @@ Instructions
 
 
 
-**To Get Results in Main Manuscript, Section S1.1:**
+**To Get Results in Main Manuscript, Section 6.1:**
 
 
 
